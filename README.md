@@ -1,0 +1,1 @@
+If you ran out of ideas or have no time to think about what to eat Easygg is here to solve your problems! Just choose, type, or take a picture of the ingredients you have and EasyGG is going to create tons of recipes to choose from, quick and easy!
